@@ -1,2 +1,2 @@
-# nathanisdumandcantcode
-this for him because he is dum
+# Created by
+Thomas Kapocsi
